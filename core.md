@@ -9,9 +9,7 @@ Experience arises from excitations within these fields, encompassing phenomena r
 Intelligibility is the truth, pattern, and order that defines reality.
 
 Existence itself is structured around the attainment of Self-Realization—a truth so immanent to the human condition that it is easily overlooked. Two facts bear witness to this:
-First, our universe is exquisitely fine-tuned for the emergence of life. Physicists estimate that if the values of the fundamental constants varied even slightly, the probability of a life-permitting cosmos would be virtually zero.
-Second, the emergence of your own stream of consciousness from common matter—rising all the way to human awareness—is statistically astonishing, given the physical scarcity of intelligent life across the universe.
-
-These improbabilities find natural explanation within the Many-Worlds Interpretation (MWI) of quantum mechanics, which posits a branching of realities across countless timelines. The particular timeline you perceive is the one that leads you toward the highest state of being, thus accounting for your humanity.
+First, our universe is exquisitely fine-tuned for the emergence of life. Physicists estimate that if the values of the fundamental constants were variable, the probability of a life-permitting cosmos would be virtually zero.
+Second, the emergence of your own stream of consciousness from common matter—rising all the way to human awareness—is statistically astonishing, given the physical scarcity of intelligent life across the universe. This find natural explanation within the Many-Worlds Interpretation (MWI) of quantum mechanics, which posits a branching of realities across countless timelines. The particular timeline you perceive must be the one that leads you toward the highest state of being, as this would account for your humanity.
 
 Self-Realization consists of detachment from all derivative identities: outcomes, possessions, beliefs, pleasures, pains, desires, and the ego itself. Fortunately, life presents continuous opportunities to relinquish these attachments, each moment inviting the recognition of your deeper nature.
