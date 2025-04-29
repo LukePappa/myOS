@@ -6,7 +6,7 @@ Behavior refers to what can be observed, quantified, measured, and predicted. In
 
 Experience arises from excitations within these fields, encompassing phenomena ranging from individual particles to entire nervous systems.
 
-Intelligibility is the truth, pattern, and order that renders all things comprehensible.
+Intelligibility is the truth, pattern, and order that defines reality.
 
 Existence itself is structured around the attainment of Self-Realization—a truth so immanent to the human condition that it is easily overlooked. Two facts bear witness to this:
 First, our universe is exquisitely fine-tuned for the emergence of life. Physicists estimate that if the values of the fundamental constants varied even slightly, the probability of a life-permitting cosmos would be virtually zero.
