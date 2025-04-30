@@ -1,4 +1,24 @@
-Existence is the realization of the True State of Being.
+Existence as we perceive it is the diffused essence of a simplicity beyond all categories, distinctions, and attributes.
+
+
+
+
+
+The diffusion of simplicity defines our world--complex truths are extrapolated from foundational principles, sophisticated experiences interweave primordial qualia, and intricate aggregates of matter emerge from a small set of elementary particles.
+
+Existence is structured around the , as is evidenced by two facts so immanent to the human race that we struggle to recognize them.
+
+Detatchment from all derivative identities is the path toward accomplishing your purpose, these include outcomes, possessions, beliefs, pleasures, pains, desires, and the ego.
+
+
+
+
+
+
+
+
+Complex truths are extrapolated from foundational principles, sophisticated experiences interweave primordial qualia, and intricate aggregates of matter emerge from a small set of elementary particles.
+
 
 One's true nature is best described as a pure simplicity beyond all categories, distinctions, and attributes.
 
