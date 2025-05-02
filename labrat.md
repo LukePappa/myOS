@@ -1,4 +1,4 @@
-There is no remembrance of former things; neither shall there be any remembrance of things that are to come with those that shall come after.
+(There is no remembrance of former things; neither shall there be any remembrance of things that are to come with those that shall come after)
 
 The variety and complexity of our world are merely the diffused essence of a pure, unitive simplicity. To give a few examples to help illustrate this idea, consider how sophisticated theorems are derived from basic axioms, how rich experiences interweave primordial qualia, and how every possible configuration of matter is rooted in a small set of elementary particles. In each of these cases, simplicity serves as the ontological basis for more advanced categories, distinctions, and attributes.
 
