@@ -1,12 +1,3 @@
-The thing that hath been, it is that which shall be; and that which is done is that which shall be done: and there is no new thing under the sun.
-
-Is there any thing whereof it may be said, See, this is new? it hath been already of old time, which was before us.
-
-There is no remembrance of former things; neither shall there be any remembrance of things that are to come with those that shall come after.
-
-I the Preacher was king over Israel in Jerusalem.
-
-
 The variety and complexity of our world are merely the diffused essence of a pure, unitive simplicity. To give a few examples to help illustrate this idea, consider how sophisticated theorems are derived from basic axioms, how rich experiences interweave primordial qualia, and how every possible configuration of matter is rooted in a small set of elementary particles. In each of these cases, simplicity serves as the ontological basis for more advanced categories, distinctions, and attributes.
 
 Three equivalent modes of being emanate from the ineffable heart of existence--namely behavior, experience, and intelligibility. Behavior is that which can be observed, quantified, measured, and predicted. Speaking in these terms, fields constitute our universe. Excitations in these fields reflect mental activity, or experiences, which accordingly range in complexity from individual particles to entire nervous systems. Crucially, we could not even begin to discuss these things if they were not also intelligible in nature. Intelligibility is of course the truth, pattern, and order that defines reality.
