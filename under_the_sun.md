@@ -1,26 +1,10 @@
-1 The words of the Preacher, the son of David, king in Jerusalem.
+The thing that hath been, it is that which shall be; and that which is done is that which shall be done: and there is no new thing under the sun.
 
-2 Vanity of vanities, saith the Preacher, vanity of vanities; all is vanity.
+Is there any thing whereof it may be said, See, this is new? it hath been already of old time, which was before us.
 
-3 What profit hath a man of all his labour which he taketh under the sun?
+There is no remembrance of former things; neither shall there be any remembrance of things that are to come with those that shall come after.
 
-4 One generation passeth away, and another generation cometh: but the earth abideth for ever.
-
-5 The sun also ariseth, and the sun goeth down, and hasteth to his place where he arose.
-
-6 The wind goeth toward the south, and turneth about unto the north; it whirleth about continually, and the wind returneth again according to his circuits.
-
-7 All the rivers run into the sea; yet the sea is not full; unto the place from whence the rivers come, thither they return again.
-
-8 All things are full of labour; man cannot utter it: the eye is not satisfied with seeing, nor the ear filled with hearing.
-
-9 The thing that hath been, it is that which shall be; and that which is done is that which shall be done: and there is no new thing under the sun.
-
-10 Is there any thing whereof it may be said, See, this is new? it hath been already of old time, which was before us.
-
-11 There is no remembrance of former things; neither shall there be any remembrance of things that are to come with those that shall come after.
-
-12 I the Preacher was king over Israel in Jerusalem.
+I the Preacher was king over Israel in Jerusalem.
 
 
 The variety and complexity of our world are merely the diffused essence of a pure, unitive simplicity. To give a few examples to help illustrate this idea, consider how sophisticated theorems are derived from basic axioms, how rich experiences interweave primordial qualia, and how every possible configuration of matter is rooted in a small set of elementary particles. In each of these cases, simplicity serves as the ontological basis for more advanced categories, distinctions, and attributes.
