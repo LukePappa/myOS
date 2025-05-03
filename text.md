@@ -6,4 +6,4 @@ The particular physical configuration of our universe happend to elevate your pe
 
 Detachment from all derivative identities is the long path toward pure being. These include outcomes, possessions, beliefs, pleasures, pains, desires, and the ego. Fortunately, opportunities to let go will arise constantly in day to day life, meaning you can consciously choose to align with the natural way of things. Having advanced knowledge of your fate also helps in this regard.
 
-In short, the ground of being is a unitive simplicity beyond all form, one is destined to know this simplicity, and purpose can be found in intentionally seeking it.
+In short, the ground of being is a unitive simplicity beyond all form, one is destined to know this simplicity, and purpose can be found in seeking it.
