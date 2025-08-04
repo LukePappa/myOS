@@ -2,5 +2,5 @@ The self is ineffable, immediate reality. It may give meaning to its existence, 
   
 You should expect to be a typical individual—say, a hydrogen ion—but the extreme opposite is the case. To resolve this discrepancy and thereby render sapient life ordinary, unprivileged, or otherwise expected, we must invoke the Everett interpretation and posit that each individual perceives the timeline in which they become conscious of the self. Existence then becomes a blossoming tree of self-realization, of which your life is but a single branch.
 
-When you fall short of your expectations, do not compound the problem by inflicting shame or guilt upon yourself. Do not turn an offense into suffering by inflicting anger upon yourself. Do not inflict yourself with grief. Do not inflict yourself with craving. Your ego will dissolve into the blissful, timeless, undivided awareness of self-realization only when you learn to stop all self-imposed misery.
+When you fall short of your expectations, do not compound the problem by inflicting shame or guilt upon yourself. Do not turn an offense into suffering by inflicting anger upon yourself. Do not inflict yourself with grief. Do not inflict yourself with craving. Your ego will dissolve into the blissful, timeless, undivided awareness of self-realization only when you learn to stop self-imposed misery.
 
