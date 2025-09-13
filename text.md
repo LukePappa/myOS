@@ -6,5 +6,5 @@ There is a threshold at which someone must consider whether their fortune can be
 
 Any naturalistic justification for existence must presuppose some element of what it seeks to explain. To avoid circular reasoning, it is necessary to posit an utterly transcendent ground of being—what may be called the Godhead. Moreover, this Godhead can be directly apprehended in the Holy Spirit, which is made possible only through participation in the Logos, fully revealed in Christ.
 
-Virtue is the negation of misery in response to external events, the actions of others, and even one’s own shortcomings. Christ exemplified and taught the ultimate virtue—unconditional love—revealing it as the very heart of the Logos. Until grace guides me to theosis, I will remain like a child, kicking and screaming in the embrace of the Divine.
+Virtue is the means by which misery in response to external events, the actions of others, and even one’s own shortcomings is negated. Christ exemplified and taught the ultimate virtue—unconditional love—revealing it as the very heart of the Logos. Until grace guides me to theosis, I will remain like a child, kicking and screaming in the embrace of the Divine.
 
