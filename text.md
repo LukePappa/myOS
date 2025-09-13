@@ -4,6 +4,7 @@ Streams span in experiential complexity from solitary atoms to entire nervous sy
 
 There is a threshold at which someone must consider whether their fortune can be more rationally explained by something other than coincidence, and becoming human far exceeds it. To truly make sense of my circumstances, I must posit that each stream perceives the world-branch in which they become partakers in the Divine nature.
 
-Any naturalistic justification for existence must presuppose some element of what it seeks to explain. To avoid circular reasoning, it is necessary to posit an utterly transcendent ground of being—what may be called the Godhead. Moreover, this Godhead is directly apprehended in the Holy Spirit, and this is made possible only through participation in the Logos, fully revealed in Christ.
+Any naturalistic justification for existence must presuppose some element of what it seeks to explain. To avoid circular reasoning, it is necessary to posit an utterly transcendent ground of being—what may be called the Godhead. Moreover, this Godhead can be directly apprehended in the Holy Spirit, which is made possible only through participation in the Logos, fully revealed in Christ.
 
 Virtue is the negation of misery in response to external events, the actions of others, and even one’s own shortcomings. Christ exemplified and taught the ultimate virtue—unconditional love—revealing it as the very heart of the Logos. Until grace guides me to theosis, I will remain like a child, kicking and screaming in the embrace of the Divine.
+
