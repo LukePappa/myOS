@@ -9,3 +9,5 @@ Any naturalistic justification for existence must presuppose some element of wha
 Virtue is the means by which misery in response to external events, the actions of others, and even one’s own shortcomings is negated. Christ exemplified and taught the ultimate virtue—unconditional love—revealing Him as the very heart of the Logos, whose truth becomes self-evident to those graced to apprehend it. Until one does, they will remain like a child, distraught in the embrace of the Divine.
 
 The ethos of evil is the nihilistic pursuit of power, and consequently it despises love, humility, and the Divine. Those caught in its grasp will hate and persecute you, but the fact of the matter is that even they deserve love. This is the judgment of God.
+
+Christ Himself prophesied His return and subsequent defeat of evil. His instruments of war will be truth and reason, the battle will be swift, and there will be no compromise with the enemy.
