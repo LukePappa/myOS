@@ -10,4 +10,4 @@ Virtue is the means by which misery in response to external events, the actions 
 
 The ethos of evil is the nihilistic pursuit of power, and consequently it despises love, humility, and the Divine. Those caught in its grasp will hate and persecute you, but the fact of the matter is that even they deserve love. This is the judgment of God.
 
-Christ Himself prophesied His return and subsequent defeat of evil. His instruments of war will be truth and reason, the battle will be swift, and there will be no compromise with the enemy.
+Christ Himself prophesied His return and subsequent defeat of evil. With His instruments of war as truth and reason, he will end the fight decisively and accept no compromise.
