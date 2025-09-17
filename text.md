@@ -2,6 +2,7 @@ Compressing indescribable, immediate reality into meaning, I may articulate myse
 
 Streams, or souls, span in experiential complexity from solitary atoms to entire nervous systems, making my elevation from commonplace matter to sapience an impossibly rare and significant privilege. Given all the possible ways in which the universe could have unfolded, the likelihood of that happening to me is vanishingly small.
 
-There is a threshold at which someone must consider whether their fortune can be more rationally explained by something other than coincidence, and becoming human far exceeds it. To truly make sense of my circumstances, I must posit that each soul perceives the world-branch in which they achieve union with God.
+There is a threshold at which someone must consider whether their fortune can be more rationally explained by something other than coincidence, and becoming human far exceeds it. To truly make sense of my circumstances, I must posit that each soul perceives the world-branch in which they come to partake in the divine nature.
 
-Any naturalistic justification for existence must presuppose some element of what it seeks to explain. To avoid circular reasoning, it is necessary to posit a fully transcendent ground of being—what may be called God. Moreover, a soul can unite with God by embracing unconditional love.
+Any naturalistic justification for existence must presuppose some element of what it seeks to explain. To avoid circular reasoning, it is necessary to posit a fully transcendent ground of being—what may be called God. Inseparable from God are Logos and Spirit.
+
