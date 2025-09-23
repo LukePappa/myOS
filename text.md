@@ -2,4 +2,4 @@ Compressing ineffable, immediate being into differentiations, I can articulate m
 
 Streams range in experiential complexity from solitary atoms to full nervous systems; my ascent from commonplace matter to sapience thus becomes an improbably rare and significant privilege. Given the vast space of possible unfoldings, the chance that this happened to me is vanishingly small.
 
-When probability alone fails to satisfy the scale of my fortune, it becomes reasonable to seek an alternative explanation. I therefore posit that each stream perceives the world-branch in which it discovers the fullness of being — undifferentiated unity. Desire reinforces separation; the path to realizing my purpose, then, is detachment.
+When probability alone fails to satisfy the scale of my fortune, it becomes reasonable to seek an alternative explanation. I therefore posit that each stream perceives the world-branch in which it discovers the fullness of being—undifferentiated unity. Desire reinforces separation; the path to realizing my purpose, then, is detachment.
