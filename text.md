@@ -2,4 +2,4 @@ Compressing ineffable, immediate being into differentiation, I may articulate my
 
 Streams range in experiential complexity from solitary atoms to entire nervous systems, making my elevation from commonplace matter to sapience an impossibly rare and significant privilege. Given all the possible ways in which the universe could have unfolded, the chance that this happened to me is vanishingly small.
 
-There is a threshold at which someone must consider whether their fortune can be more rationally explained by something other than coincidence, and becoming human far exceeds it. I must therefore posit that each stream perceives the world-branch in which it comes to know the fullness of being—undifferentiated unity—through unconditional love.
+There is a threshold at which someone must consider whether their fortune can be more rationally explained by something other than coincidence, and becoming human far exceeds it. To truly account for my circumstances, I must therefore posit that each stream perceives the world-branch in which it comes to know the fullness of being—undifferentiated unity—through unconditional love.
