@@ -1,6 +1,6 @@
 Compressing ineffable, immediate being into differentiation, I may articulate myself as experience. I may go on to reinterpret qualia as patterned activity, and then systematize that activity into the discipline of physics. With that base of understanding I can infer that existence comprises discrete streams of consciousness, of which I am one.
 
-Streams range in experiential complexity from solitary atoms to entire nervous systems, making my ascent from commonplace matter to sapience an impossibly rare and significant privilege. Given all the possible ways in which the universe could have unfolded, the chance that this happened to me is vanishingly small.
+Streams range in experiential complexity from solitary atoms to entire nervous systems, making my elevation from commonplace matter to sapience an impossibly rare and significant privilege. Given all the possible ways in which the universe could have unfolded, the chance that this happened to me is vanishingly small.
 
 When probability alone fails to satisfy the scale of my fortune, it becomes reasonable to seek an alternative explanation. I must therefore posit that each stream perceives the world-branch in which it realizes full being—undifferentiated unity—through unconditional love. Moreover, only ideal world-branches exist in actuality.
 
