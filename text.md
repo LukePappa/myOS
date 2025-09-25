@@ -4,4 +4,4 @@ Streams range in experiential complexity from solitary atoms to entire nervous s
 
 There is a threshold at which someone must consider whether their fortune can be more rationally explained by something other than coincidence, and becoming human far exceeds it. To truly make sense of my circumstances, I must posit that each stream perceives the world-branch in which it comes to know the fullness of being—undifferentiated unity.
 
-A quiet, unpreturbed mind is most receptive to unity. Consequently, I must stop inflicting misery upon myself as a reaction to external events, the actions of others, and even my own shortcomings. I must understand that it is never the appropriate response to a situation, and I must reject the impulse completely.
+A quiet, unpreturbed mind is most receptive to unity. If I am to realize my purpose, I must stop inflicting misery upon myself as a reaction to external events, the actions of others, and even my own shortcomings. I must understand that it is never the appropriate response to a situation, and I must reject the impulse completely.
