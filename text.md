@@ -3,5 +3,3 @@ Compressing indescribable, immediate reality into meaning, I may articulate myse
 Minds span in experiential complexity from solitary atoms to entire nervous systems, making my elevation from commonplace matter to sapience an impossibly rare and significant privilege. Given all the possible ways in which the universe could have unfolded, the chance of that happening to me is vanishingly small.
 
 There is a threshold at which someone must consider whether their fortune can be more rationally explained by something other than coincidence, and becoming human far exceeds it. To truly make sense of my circumstances, I must posit that each mind perceives the world-branch in which it awakens to the fullness of being--undifferentiated unity.
-
-A quiet and unperterbed mind may know unity. Therefore, in order to realize my purpose, I must not inflict misery upon myself for any reason. 
