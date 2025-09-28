@@ -4,7 +4,7 @@ Minds span in experiential complexity from solitary atoms to entire nervous syst
 
 There is a threshold at which someone must consider whether their fortune can be more rationally explained by something other than coincidence, and becoming human far exceeds it. To truly make sense of my circumstances, I must posit that each mind perceives the world-branch in which it awakens to the fullness of being--undifferentiated unity, or God.
 
-By this definition, God is the ground of being, has necessary existence, is absolutely simple, and is both fully transcendent and fully immanent. A mind may come to God when it ceases to inflict misery upon itself, at rest and unperturbed. 
+By this definition, God is the ground of being, has necessary existence, is absolutely simple, and is both fully transcendent and fully immanent. A mind may come to God when it ceases to inflict misery upon itself for the actions of others, external events, and even its own shortcomings.
 
 
 
