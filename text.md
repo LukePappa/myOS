@@ -4,4 +4,4 @@ Minds span in experiential complexity from solitary atoms to entire nervous syst
 
 There is a threshold at which someone must consider whether their fortune can be more rationally explained by something other than coincidence, and becoming human far exceeds it. To truly make sense of my circumstances, I must posit that each mind perceives the world-branch in which it awakens to the fullness of being--undifferentiated unity--through unconditional love.
 
-Love permeates everything. A quiet, unperterbed mind may harness it at will. Such an individual does not inflict misery upon themselves as a reaction to external events, the actions of others, and even his own shortcomings.
+Love permeates everything. It can be harnessed at will by a quiet, unperturbed mind. Such a mind does not inflict misery upon itself as a reaction to external events, the actions of others, and even its own shortcomings.
