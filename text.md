@@ -4,4 +4,4 @@ Minds span in experiential complexity from solitary atoms to entire nervous syst
 
 There is a threshold at which someone must consider whether their fortune can be more rationally explained by something other than coincidence, and becoming human far exceeds it. To truly make sense of my circumstances, I must posit that each mind perceives the world-branch in which it awakens to the fullness of being--undifferentiated unity.
 
-A mind at rest and unperturbed may know unity. Such a mind does not inflict misery upon itself for any reason.
+A mind at rest and unperturbed may realize its purpose. Such a mind does not inflict misery upon itself for any reason.
