@@ -4,4 +4,4 @@ Minds span in experiential complexity from solitary atoms to entire nervous syst
 
 There is a threshold at which someone must consider whether their fortune can be more rationally explained by something other than coincidence, and becoming human far exceeds it. To truly make sense of my circumstances, I must posit that each mind perceives the world-branch in which it awakens to the fullness of being--undifferentiated unity.
 
-Awakening comes to a quiet, unperturbed mind. Therefore, I should avoid self-inflicted suffering by mastering my judgments.
+Awakening comes to a quiet, unperturbed mind. Therefore, I should not inflict misery upon myself.
