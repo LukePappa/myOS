@@ -2,6 +2,6 @@ Compressing indescribable, immediate reality into meaning, I may articulate myse
 
 Minds span in experiential complexity from solitary atoms to entire nervous systems, making my elevation from commonplace matter to sapience an impossibly rare and significant privilege. Given all the possible ways in which the universe could have unfolded, the chance of that happening to me is vanishingly small.
 
-There is a threshold at which someone must consider whether their fortune can be more rationally explained by something other than coincidence, and becoming human far exceeds it. To truly make sense of my circumstances, I must posit that each mind perceives the world-branch in which it awakens to the fullness of being--undifferentiated unity, or God.
+There is a threshold at which someone must consider whether their fortune can be more rationally explained by something other than coincidence, and becoming human far exceeds it. To truly make sense of my circumstances, I must posit that each mind perceives the world-branch in which it awakens to the fullness of being--undifferentiated unity.
 
-By this definition, God is the ground of being, has necessary existence, is absolutely simple, and is both fully transcendent and fully immanent. Furthermore, a mind may come to God when it ceases to inflict misery upon itself as a reaction to external events, the actions of others, and even its own shortcomings, at rest and unperturbed.
+A mind at rest and unperturbed may fulfill its purpose. Such a mind does not inflict misery upon itself for any reason.
