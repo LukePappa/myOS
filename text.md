@@ -1,4 +1,4 @@
-Compressing ineffable, immediate reality into meaning, one may articulate themselves as experience. They may go on to reinterpret qualia as patterned activity, and then systematize their grasp of that activity into the natural sciences. Using that body of knowledge, they can infer that existence comprises discrete streams of consciousness, or minds, of which they are one.
+Compressing ineffable, immediate reality into meaning, one may articulate themselves as experience. They may go on to reinterpret qualia as patterned activity, and then systematize their grasp of that activity into the natural sciences. Using that body of knowledge, they may infer that existence comprises discrete streams of consciousness, or minds, of which they are one.
 
 Minds span in experiential complexity from solitary atoms to entire nervous systems, making one's elevation from commonplace matter to sapience an impossibly rare and significant privilege. Given all the possible ways in which the universe could have unfolded, the chance of that happening to them is vanishingly small.
 
