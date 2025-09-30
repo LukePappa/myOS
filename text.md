@@ -4,4 +4,4 @@ Minds span in experiential complexity from solitary atoms to entire nervous syst
 
 There is a threshold at which someone must consider whether their fortune can be more rationally explained by something other than coincidence, and becoming human far exceeds it. To truly make sense of my circumstances, I must posit that each mind perceives the world-branch in which it awakens to the fullness of being--undifferentiated unity--through a process of maturation.
 
-Maturity is the rejection of misery as a reaction towards external events, the actions of others, and even one’s own shortcomings. It culminates in unconditional love, which is consequently the ideal way of life and the purest expression of unity.
+Maturity is the rejection of misery as a reaction to external events, the actions of others, and even one’s own shortcomings. It culminates in unconditional love, which is consequently the ideal way of life and the purest expression of unity.
