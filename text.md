@@ -2,4 +2,4 @@ Compressing ineffable, immediate reality into meaning, one may articulate themse
 
 Minds span in experiential complexity from solitary atoms to entire nervous systems. One's elevation from commonplace matter to sapience is consequently such an impossibly rare and significant privilege that it defies mere coincidence. To make sense of their circumstances, then, one may posit that each mind perceives the world-branch in which it awakens to the fullness of being--undifferentiated unity.
 
-Realizing the oneness of everything requires perfect maturity. The foundation of maturity is the rejection of misery as a reaction to external events, the actions of others, and even one’s own shortcomings. The maxim to live by is thus as follows: there is no justifiable reason to inflict misery upon oneself.
+Realizing the oneness of everything requires perfect maturity. The foundation of maturity is the rejection of misery as a reaction to external events, the actions of others, and even one’s own shortcomings. The maxim to live by is thus as follows: do not inflict misery upon oneself.
