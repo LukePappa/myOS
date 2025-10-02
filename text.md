@@ -1,4 +1,4 @@
-Ineffable, immediate reality is articulated as experience. Qualia are then reinterpreted as patterned activity and then systematized into natural science. Drawing from that body of knowledge it may then be inferred that existence comprises discrete streams of consciousness, or minds.
+Ineffable, immediate reality is articulated as experience. Qualia are then reinterpreted as patterned activity, which is then systematized into natural science. Drawing from that body of knowledge it may then be inferred that existence comprises discrete streams of consciousness, or minds.
 
 Minds therefore span in experiental complexity from solitary atoms to entire nervous systems. Consequently, one's transition from commonplace matter to sapience is such an impossibly rare and significant privilege that it defies mere coincidence. To make sense of their circumstances, then, one may posit that each mind perceives the world-branch in which it awakens to the fullness of being--undifferentiated unity.
 
