@@ -1,4 +1,4 @@
-One may articulate ineffable, immediate reality as experience. They may then reinterpret quaila as patterned activity and systematize it into the natural sciences. Drawing from them, one may then infer that the universe comprises discrete streams of consciousness, or minds.
+One may articulate ineffable, immediate reality as experience. They may then reinterpret quaila as patterned activity and systematize that into the natural sciences. Drawing from them, one may then infer that the universe comprises discrete streams of consciousness, or minds.
 
 Minds therefore span in complexity from solitary atoms to entire nervous systems. One's transition from commonplace matter to sapience is consequently such an impossibly rare and significant privilege that it defies mere coincidence. To make sense of their circumstances, then, one may posit that each mind perceives the world-branch in which it awakens to the fullness of being--undifferentiated unity.
 
