@@ -2,5 +2,5 @@ Ineffable, immediate reality may be articulated as experience. Qualia can then b
 
 Minds then presumably span in experiential complexity from solitary atoms to entire nervous systems. One's transition from commonplace matter to sapience is consequently such an impossibly rare and significant privilege that it defies mere coincidence. To make sense of their circumstances, then, they may posit that each mind perceives the world-branch in which it awakens to the fullness of being--namely undifferentiated unity, or God.
 
-God is known through a transcendent love that permeates existence. This love is experienced by those who participate in it through prayer, virtue, and sacramental life, allowing God’s grace to transform them and shine forth in the world.
+God is known through a transcendent love that permeates existence. This love is apprehended through maturity, cultivated through the rejection of misery as a reaction to external events, the actions of others, and even one’s own shortcomings. To live for God thus necessitates a commitment to maturation.
 
