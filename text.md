@@ -2,4 +2,4 @@ Ineffable, immediate reality may be articulated as experience. Qualia can then b
 
 Minds then presumably span in experiential complexity from solitary atoms to entire nervous systems. One's transition from commonplace matter to sapience is consequently such an impossibly rare and significant privilege that it defies mere coincidence. To make sense of their circumstances, then, they may posit that each mind perceives the world-branch in which it awakens to the fullness of being--undifferentiated unity.
 
-Recognizing the oneness of everything requires maturity. The foundation of maturity is the rejection of misery as a reaction to external events, the actions of others, and even one’s own shortcomings. To live in accordance with one's claimed purpose thus necessitates a commitment to this principle.
+Recognizing the oneness of everything requires maturity. The foundation of maturity is the rejection of misery as a reaction to external events, the actions of others, and even one’s own shortcomings. For one to live in accordance with their claimed purpose thus necessitates a commitment to this principle.
