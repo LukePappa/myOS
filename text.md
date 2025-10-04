@@ -1,4 +1,4 @@
-Ineffable, immediate reality is articulated as qualia. Qualia are then formalized and systematized into the natural sciences. Speaking in those terms, existence comprises brains.
+Ineffable, immediate reality is articulated as qualia. Qualia are then formalized and systematized into the sciences. Speaking in those terms, existence comprises brains.
 
 Brains span in complexity from singular particles to entire nervous systems. One's transition from commonplace matter to sapience is consequently such an impossibly rare and significant privilege that it defies mere coincidence. To make sense of their fortune, then, they must posit that each brain perceives the world-branch in which it awakens to the fullness of being--undifferentiated unity.
 
