@@ -1,6 +1,6 @@
 Ineffable, immediate reality is articulated as qualia, which are then formalized and systematized within science and philosophy. It may be gathered from those disciplines that existence comprises discrete streams of consciousness, or minds.
 
-Minds therefore span in physical complexity from singular particles to entire nervous systems. The proportion of minds with sapience is consequently so low that actually being sapient seems to defy coincidence. 
+Minds therefore span in physical complexity from singular particles to entire nervous systems. The proportionly low amount sapient minds consequently so low that actually being sapient seems to defy coincidence. 
 
 
 
