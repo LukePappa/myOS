@@ -1,11 +1,6 @@
 Ineffable, immediate reality is articulated as qualia, which are then formalized and systematized within science and philosophy. It may be gathered from those disciplines that existence comprises discrete streams of consciousness, or minds.
 
-Minds therefore span in physical complexity from singular particles to entire nervous systems. The proportionly low amount sapient minds consequently makes having sapien seems to defy coincidence. 
-
-
-
-
-rarity of sapience consequently makes having it an unlikely privilege, to the extent of defying mere coincidence. To make sense of their circumstances, then, one may invoke the MWI and posit that each mind subjectively perceives the world-branch in which it eventually awakens to the fullness of being--undifferentiated unity.
+Minds therefore span in physical complexity from singular particles to entire nervous systems. The proportionly low amount of minds with sapience consequently makes having it an unlikely privilege, to the extent of defying mere coincidence. To make sense of their circumstances, then, one may invoke the MWI and posit that each mind subjectively perceives the world-branch in which it eventually awakens to the fullness of being--undifferentiated unity.
 
 Awakening to the oneness of everything requires maturity. The foundation of maturity is the recognition that inflicting misery upon oneself--whether in reaction to external events, the actions of others, or even one’s own shortcomings--is never justified. To live in alignment with one's fate thus necessitates honoring this principle.
 
