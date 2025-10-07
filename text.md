@@ -4,4 +4,4 @@ Minds therefore span in physical complexity from singular particles to entire ne
 
 Any naturalistic justification for existence must presuppose some element of what it seeks to explain. To avoid such circular reasoning, it is necessary to posit a transcendent source of being--what may be called God. By this definition, God is above ontological categories, causality, and even the rules of logic. He is accordingly uncreated, unknowable, ineffable, and wholly unrestrained in ability.
 
-Much as truth is grasped by the intellect, the love of God is received by a pure heart. The simplest and most effective form of purification is the Jesus Prayer.
+Much as truth is grasped by the intellect, the love of God is received by a pure heart. The simplest and most effective form of purification is reciting the Jesus Prayer.
