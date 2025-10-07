@@ -4,4 +4,4 @@ Minds therefore span in physical complexity from singular particles to entire ne
 
 Any naturalistic justification for existence must presuppose some element of what it seeks to explain. To avoid such circular reasoning, it is necessary to posit a transcendent source of being--what may be called God. By this definition, God is above ontological categories, causality, and even the rules of logic. He is accordingly uncreated, unknowable, ineffable, and wholly unrestrained in ability.
 
-Much as truth is seen by the intellect, God is apprehended by maturity. The foundation of maturity is choosing to react appropriately to external events, the actions of others, and one’s own shortcomings. To live in accordance with one's purpose thus necessitates a commitment to this principle.
+Much as truth is seen by the intellect, the love of God is apprehended by maturity. The foundation of maturity is choosing to react appropriately to external events, the actions of others, and one’s own shortcomings. To live in accordance with one's purpose thus necessitates a commitment to this principle.
