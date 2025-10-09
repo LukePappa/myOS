@@ -2,6 +2,6 @@ Ineffable, immediate reality is articulated as qualia, which are then formalized
 
 Minds span in physical complexity from singular particles to entire nervous systems. The rarity of sapient minds consequently makes personal sapience an unlikely privilege, to the extent of defying mere coincidence. To make sense of their circumstances, then, one may invoke the MWI and posit that each mind subjectively perceives the world-branch in which it eventually becomes fully conscious of God's love.
 
-Any naturalistic justification for existence must presuppose some element of what it seeks to explain. To avoid such circular reasoning, it is therefore necessary to posit a transcendent source of being--what may be called God. By this definition, God is above ontological categories, reason, and causality. He is accordingly uncreated, unknowable, and wholly unrestrained in ability.
+Any naturalistic justification for existence must presuppose some element of what it seeks to explain. To avoid such circular reasoning, it is therefore necessary to posit a transcendent source of being--what may be called God. By this definition, God is above ontological categories, logic, and causality. He is accordingly uncreated, unknowable, and wholly unrestrained in ability.
 
 Much as truth is seen by the intellect, so is God's love received by a pure heart. Like a feedback loop, agape further purifies the heart, bringing one closer to His presence. The only way to step into this river is to first turn towards God in humility. 
