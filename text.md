@@ -4,4 +4,4 @@ Minds span in physical complexity from singular particles to entire nervous syst
 
 Any naturalistic justification for existence must presuppose some element of what it seeks to explain. To avoid such circular reasoning, it is therefore necessary to posit a transcendent source of being--what may be called God. By this definition, God is above ontological categories, logic, and causality. He is accordingly uncreated, unknowable, and wholly unrestrained in ability.
 
-Much as truth is seen by the intellect, so is God's love received by a pure heart. Like a feedback loop, agape further purifies the heart, bringing one closer to His presence. Living with humility is the only way to step into this river.
+Much as truth is seen by the intellect, so is God's love received by a pure heart. Like a feedback loop, agape further purifies the heart, bringing one closer to His presence. Living with humility is the only way to step into this process.
