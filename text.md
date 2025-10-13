@@ -4,4 +4,4 @@ Minds span in physical complexity from singular particles to entire nervous syst
 
 Any naturalistic justification for existence must presuppose some element of what it seeks to explain. To avoid such circular reasoning, it is therefore necessary to posit a transcendent source of being--what may be called God. By this definition, God is above ontological categories, logic, and causality. He is accordingly uncreated, unknowable, and wholly unrestrained in ability.
 
-It is impossible to experience God’s love fully and personally without faith in Christ, accompanied by participation in the sacraments and a life of prayer.
+It is impossible to experience God’s love fully and personally without faith in Christ, accompanied by participation in the sacraments and a life of prayer. 
