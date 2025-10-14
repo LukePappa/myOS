@@ -2,4 +2,4 @@ Ineffable, immediate reality is articulated as qualia, which are then formalized
 
 Minds span in physical complexity from singular particles to entire nervous systems. The rarity of sapient minds consequently makes personally being sapient an unlikely privilege, to the extent of defying mere coincidence. To make sense of their circumstances, then, one may invoke the MWI and posit that each mind subjectively perceives the world-branch in which it reaches full maturity.
 
-Maturation begins with the recognition that misery is an inappropriate response to external events, the actions of others, and even one’s own shortcomings--and it culminates in unconditional love, radical humility, inner peace, and a pure heart.
+Maturation begins with the recognition that misery is merely an inappropriate response to external events, the actions of others, or one’s own shortcomings--and it culminates in unconditional love, radical humility, inner peace, and a pure heart.
