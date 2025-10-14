@@ -4,6 +4,6 @@ Minds span in physical complexity from singular particles to entire nervous syst
 
 Any naturalistic justification for existence must presuppose some element of what it seeks to explain. To avoid such circular reasoning, it is therefore necessary to posit a transcendent ground of being--what may be called God. By this definition, God is above properties, logic, and causality. He is consequently uncreated, unknowable, and wholly unrestrained in ability.
 
-His indwelling presence is known only to those who have reached a perfect maturity.
+His indwelling presence is known only by those who have reached a perfect maturity.
 
 Maturation begins with the recognition that all misery is self-inflicted. By choosing instead the appropriate responses to external events, the actions of others, and one’s own shortcomings, one gradually accumulates unconditional love, humility, inner peace, and a pure heart.
