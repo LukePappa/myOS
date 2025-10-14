@@ -6,4 +6,4 @@ Any naturalistic justification for existence must presuppose some element of wha
 
 His indwelling presence is known only by those who have reached a perfect maturity.
 
-Maturation begins with the recognition that all misery is self-inflicted. By choosing instead the appropriate responses to external events, the actions of others, and one’s own shortcomings, one gradually accumulates unconditional love, humility, inner peace, and a pure heart.
+Maturation begins with the recognition that all misery is self-inflicted. By choosing instead the appropriate responses to external events, the actions of others, and one’s own shortcomings, one gradually accumulates virtue.
