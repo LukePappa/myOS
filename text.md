@@ -4,4 +4,4 @@ Minds span in physical complexity from singular particles to entire nervous syst
 
 Any naturalistic justification for existence must presuppose some element of what it seeks to explain. To avoid such circular reasoning, it is therefore necessary to posit a transcendent source of being--what may be called God. By this definition, God is above properties, logic, and causality. He is consequently uncreated, unknowable, and wholly unrestrained in ability.
 
-Maturation begins with the recognition that all misery is self-inflicted. By internalizing this principle, one can more easily choose appropriate responses to external events, the actions of others, and one’s own shortcomings, thereby accumulating virtue. Much as truth is seen by the intellect, God's indwelling presence is apprehended by a purified heart. 
+Maturation begins with the recognition that all misery is self-inflicted. By internalizing this principle, one can more easily choose appropriate responses to external events, the actions of others, and one’s own shortcomings, thereby accumulating virtue. And much as truth is seen by the intellect, God's indwelling presence is apprehended by a purified heart. 
