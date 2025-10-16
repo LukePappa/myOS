@@ -1,11 +1,15 @@
--------------------------------------------
 P1:
+
 -------------------------------------------
 P2: 
-Are we fated for eternal or temporary communion?
+Is communion fated to be eternal or temporary?
+  -eternal seems right, but how could that be possible given heat death?
+  
 -------------------------------------------
 P3: 
-origin/source/ground/heart of being spectrum--which term for god is best conducive to a relationship?
+
 -------------------------------------------
 P4:
+
 -------------------------------------------
+META:
