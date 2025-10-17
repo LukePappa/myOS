@@ -4,4 +4,4 @@ Minds span in physical complexity from singular particles to entire nervous syst
 
 Any naturalistic justification for existence must presuppose some element of what it seeks to explain. To avoid such circular reasoning, it is therefore necessary to posit a transcendent source of being--what may be called God. By this definition, God is above properties, logic, and causality. He is consequently uncreated, unknowable, and wholly unrestrained in ability.
 
-Communion is supra-intellectual. It requires purifying the heart, which entails eliminating misery as a response to external events, the actions of others, and one’s own shortcomings. 
+Communion is supra-intellectual. It requires purification of the heart, which entails eliminating misery as a response to external events, the actions of others, and one’s own shortcomings. 
