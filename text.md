@@ -1,4 +1,4 @@
-Ineffable, immediate reality is articulated as qualia, which are then formalized and systematized. It may be gathered from this context that existence comprises discrete streams of consciousness, or minds.
+Ineffable, immediate reality is articulated as qualia, which are then formalized and systematized. Assuming that existence possesses ontological unity, one may gather from this context that it must comprise discrete streams of consciousness, or minds.
 
 Minds span in physical complexity from singular particles to entire nervous systems. The rarity of sapient minds consequently makes personally being sapient an unlikely privilege, to the extent of defying mere coincidence. To make sense of their circumstances, then, one may invoke the MWI and posit that each mind subjectively perceives the world-branch in which it eventually enters into an eternal and perfect communion with God.
 
