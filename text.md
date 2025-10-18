@@ -4,4 +4,4 @@ Minds span in physical complexity from singular particles to entire nervous syst
 
 Any naturalistic justification for existence must presuppose some element of what it seeks to explain. To avoid such circular reasoning, it is therefore necessary to posit a transcendent source of being--what may be called God. By this definition, God is above properties, logic, and causality. He is consequently uncreated, perfectly simple, and wholly unrestrained in ability.
 
-Much as truth is seen by the intellect, God's presence is felt by the heart. It grows into divine love, which can be understood poetically as the imperfections of the heart burning away. Once those fires subside, what remains is pure contemplation.
+Much as truth is seen by the intellect, God's loving presence is felt by the heart. This faculty must first be purified, such that it no longer inflicts misery upon itself in response to external events, the actions of others, and even its own shortcomings.
