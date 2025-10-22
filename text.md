@@ -1,4 +1,4 @@
-I may articulate myself as qualia, which I can then formalize and systematize into understanding. Assuming I am part of an ontologically monistic existence, it must comprise other discrete streams of experience, or minds.
+I can articulate myself as qualia, which I can then formalize and systematize into understanding. Assuming I am part of an ontologically monistic existence, it must comprise other discrete streams of experience, or minds.
 
 Minds, then, span in physical complexity from singular particles to entire nervous systems. The consequent rarity and significance of sapience makes personally acquiring it defy coincidence. To make sense of my circumstances, then, I must invoke the MWI and posit that each mind subjectively perceives the world-branch in which it eventually enters into an eternal and perfect communion with God.
 
