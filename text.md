@@ -4,5 +4,5 @@ Minds then span in physical complexity from singular particles to entire nervous
 
 Any naturalistic justification for existence must presuppose some element of what it seeks to explain. To avoid such circular reasoning, it is therefore necessary to posit a transcendent source of being: God. By this definition, God is above properties, logic, and causality. He is accordingly wholly unconstrained in essence and ability. 
 
-Much as the intellect sees truth, the heart senses God's presence. It does so when it no longer inflicts misery upon itself in response to external events, the actions of others, and its own shortcomings.
+Much as the intellect sees truth, the heart senses God's presence. It does so after it no longer inflicts misery upon itself in response to external events, the actions of others, and its own shortcomings.
 
