@@ -1,6 +1,6 @@
 I may articulate myself as qualia, which I can then formalize and systematize into understanding. Assuming I am part of an ontologically monistic existence, it must comprise other discrete streams of experience, or minds.
 
-Minds must then span in physical complexity from singular particles to entire nervous systems. The consequently low proportion and high significance of sapient minds makes personally acquiring one defy coincidence. To make sense of my circumstances, then, I must invoke the MWI and posit that each mind subjectively perceives the world-branch in which it eventually enters into an eternal and perfect communion with God.
+Minds then span in physical complexity from singular particles to entire nervous systems. The consequently low proportion and high significance of sapient minds makes personally acquiring one defy coincidence. To make sense of my circumstances, then, I must invoke the MWI and posit that each mind subjectively perceives the world-branch in which it eventually enters into an eternal and perfect communion with God.
 
 Any naturalistic justification for existence must presuppose some element of what it seeks to explain. To avoid such circular reasoning, it is therefore necessary to posit a transcendent source of being: God. By this definition, God is above properties, logic, and causality. He is accordingly wholly unconstrained in essence and ability. 
 
