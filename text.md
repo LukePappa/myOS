@@ -1,5 +1,7 @@
 I articulate myself as qualia, which I formalize and systematize. I am part of an ontologically coherent reality, comprising other discrete streams of experience, or minds.
 
-Minds span in complexity from singular particles to entire nervous systems. The consequent rarity and significance of sapience makes personally transforming from commonplace matter into a human being defy coincidence. To make sense of my circumstances, then, I must invoke the MWI and posit that each mind subjectively perceives the world-branch in which it reaches a perfected state of being.
+Minds span in complexity from singular particles to entire nervous systems. The consequent rarity and significance of sapience makes personally transforming from commonplace matter into a human being defy coincidence. To make sense of my circumstances, then, I must invoke the MWI and posit that each mind subjectively perceives the world-branch in which it eventually enters into an eternal and perfect communion with God.
 
-Such a state is defined by a pure heart. A heart is purified when it no longer inflicts misery upon itself in response to external events, the actions of others, and its own shortcomings.
+Any naturalistic justification for existence must presuppose some element of what it seeks to explain. To avoid such circular reasoning, it is therefore necessary to posit a transcendent source of being: God. By this definition, God is above properties, logic, and causality. He is accordingly wholly unconstrained in essence and ability. 
+
+Much as the intellect sees truth, the heart senses God's presence. It does so after it no longer inflicts misery upon itself in response to external events, the actions of others, and its own shortcomings--after it is purified.
