@@ -1,1 +1,3 @@
 Existence comprises discrete streams of experience that range in complexity from singular particles to entire nervous systems. Sapience is consequently such a rare and significant privilege that personally acquiring it defies coincidence. To make sense of my circumstances, then, I must invoke the MWI and theorize that each mind subjectively perceives the world-branch in which it eventually awakens to the fullness of being--undifferentiated unity.
+
+Recognizing the oneness of everything requires a perfect maturity, cultivated through choosing the appropriate response to external events, the actions of others, and one’s own shortcomings.
