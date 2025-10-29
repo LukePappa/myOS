@@ -1,0 +1,1 @@
+The way I see it, there are two spiritual paths. A "spiritual path" concerns ultimate purpose. Its the big question of why we're here. Traditionally, these two paths correspond to east and west, but they constantly m
