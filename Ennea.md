@@ -1,0 +1,3 @@
+Any naturalistic justification for existence must presuppose some element of what it seeks to explain. Thus, to avoid circularity, it is necessary to posit a transcendent ground of being: God. Moreover, one may become aware of the divinity that underlies everything simply by not generating misery in response to external events, the actions of others, and their own shortcomings.
+
+Existence comprises minds, ranging from singular particles to entire nervous systems. Consequently, sapience is such a rare and significant privilege that personally acquiring it defies coincidence. To make sense of my circumstances, then, I must invoke the MWI and posit that each mind perceives the world-branch in which it unites with God, attaining Ennea.
