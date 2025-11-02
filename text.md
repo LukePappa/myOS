@@ -1,1 +1,1 @@
-I will purify my heart into the transcendent.
+My heart will be purified into the transcendent.
