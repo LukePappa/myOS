@@ -1,1 +1,1 @@
-Attend to the divinity of existence.
+Ennea: attend to the divinity of existence.
