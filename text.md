@@ -1,1 +1,1 @@
-Attend to the divinity that underlies everything.
+Unify with the divinity that underlies everything.
