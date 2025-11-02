@@ -1,1 +1,1 @@
-Attend to the divinity that underlies everything.
+Attend to the divinity of existence.
