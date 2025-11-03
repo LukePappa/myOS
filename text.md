@@ -1,3 +1,3 @@
 Any naturalistic justification for existence must presuppose some element of what it seeks to explain. Thus, to avoid circularity, it is necessary to posit a transcendent ground of being: God. 
 
-Existence itself comprises minds, ranging from singular particles to entire nervous systems. Sapience is consequently such a rare and significant privilege that personally acquiring it defies coincidence. To make sense of my circumstances, then, I must invoke the MWI and posit that each mind perceives the world-branch in which their attention becomes united to God.
+Existence itself comprises minds, ranging from singular particles to entire nervous systems. Sapience is consequently such a rare and significant privilege that personally acquiring it defies coincidence. To make sense of my circumstances, then, I must invoke the MWI and posit that each mind perceives the world-branch in which their awareness becomes united to God.
