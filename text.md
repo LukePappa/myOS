@@ -1,1 +1,1 @@
-Attending to the divinity of existence is one's true purpose. 
+Attending to the divinity of existence is one's true purpose.
