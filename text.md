@@ -1,3 +1,5 @@
 Any naturalistic justification for existence must presuppose some element of what it seeks to explain. Thus, to avoid circularity, it is necessary to posit a transcendent ground of being: God. Moreover, one may attune to God by relinquishing self-inflicted misery.
 
 Existence itself comprises minds, ranging from singular particles to entire nervous systems. Sapience is consequently such a rare and significant privilege that personally acquiring it defies coincidence. To make sense of my circumstances, then, I must invoke the MWI and theorize that each mind subjectively perceives the world-branch in which they unite with God, attaining Ennea.
+
+There are distinct phases of spiritual progression which the individual may pass through on the way to Ennea. The first of these is the Honeymoon Phase, which corresponds to the time when the individual is first encountering God. This period can last a few months, and in that time they may frequently experience God as a loving, divine presence. As 
