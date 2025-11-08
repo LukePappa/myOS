@@ -1,1 +1,1 @@
-Inner contentment is may be attained only after one relinquishes self-inflicted misery.
+Inner peace may be attained only after one relinquishes self-inflicted misery.
