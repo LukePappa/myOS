@@ -1,1 +1,1 @@
-One may attain inner peace by relinquishing self-inflicted misery.
+Stop inflicting misery upon yourself and you will attain inner peace.
