@@ -1,1 +1,1 @@
-Discerning and choosing appropriate responses will bring inner peace.
+Stop inflicting misery upon yourself and you will attain inner peace.
