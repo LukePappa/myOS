@@ -1,1 +1,1 @@
-If a genie gave you three wishes, and your first wish was for inner peace, then you wouldn't need the other two wishes. The value of inner peace is thus infinite. This being the case, would you not pursue it?
+If a genie gave you three wishes, and your first wish was for inner peace, then you wouldn't need the other two wishes. The value of inner peace is therefore infinite. This being the case, would you not pursue it?
