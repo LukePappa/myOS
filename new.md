@@ -1,1 +1,1 @@
-Discerning and choosing the appropriate responses to one's circumstances will bring inner peace.
+Discerning and choosing appropriate responses will bring inner peace.
