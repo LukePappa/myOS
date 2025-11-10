@@ -1,3 +1,3 @@
-Any naturalistic justification for existence must presuppose some element of what it seeks to explain. To avoid circularity, it is necessary to posit a transcendent ground of being, which may be called God. Moreover, one may gradually attune to God simply by not inflicting misery upon themselves.
+Any naturalistic justification for existence must presuppose some element of what it seeks to explain. To avoid circularity, it is necessary to posit a transcendent ground of being, termed God. Moreover, one may attune to God simply by not inflicting misery upon themselves.
 
 Existence itself comprises minds, ranging from singular particles to entire nervous systems. Sapience is consequently such a rare and significant privilege that personally acquiring it defies coincidence. To make sense of one's circumstances, then, one must invoke the MWI and posit that each mind subjectively perceives the world-branch in which it unites with God.
