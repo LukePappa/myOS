@@ -1,1 +1,1 @@
-Stop inflicting misery upon yourself and you will attain inner peace.
+Discerning and choosing the appropriate responses to one's circumstances will bring inner peace.
