@@ -1,1 +1,1 @@
-Inner peace may be attained only after one stops inflicting misery upon oneself.
+One may attain inner peace by relinquishing self-inflicted misery.
