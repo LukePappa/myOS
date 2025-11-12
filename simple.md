@@ -1,0 +1,1 @@
+The value of inner peace is infinite. One may attain it through disciplined emotional regulation.
