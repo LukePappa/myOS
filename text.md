@@ -1,1 +1,1 @@
-  The value of inner peace is infinite, and it can be aquired through disciplined emotional regulation.
+  The value of complete fulfillment is infinite, and it can be aquired through disciplined emotional regulation.
