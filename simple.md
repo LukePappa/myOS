@@ -1,0 +1,1 @@
+Inner peace has infinite value. It may be attained through disciplined emotional regulation.
