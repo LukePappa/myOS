@@ -1,3 +1,3 @@
-Compressing transcendent reality into meaning, I may articulate myself as experience, and which I may then formalize and systematize into categories of being. Assuming I belong to an ontologically coherent existence, it must then comprise other minds, ranging in complexity from singular particles to entire nervous systems. 
+Compressing transcendent reality into meaning, I may articulate myself as experience, then formalize and systematize it into categories of being. Assuming I belong to an ontologically coherent existence, it must then comprise other minds, ranging in complexity from singular particles to entire nervous systems. 
 
 Sapience is such a rare and significant privilege that personally acquiring it defies coincidence. To make sense of my circumstances, I must invoke the MWI and posit that each mind subjectively perceives the world-branch in which it eventually attains everlasting attunement to its transcendent ground.
