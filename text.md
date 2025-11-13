@@ -1,4 +1,4 @@
-Compressing transcendent reality into meaning, I may articulate myself as experience, formalized and systematized through categories of being.
+Compressing transcendent reality into meaning, I may articulate myself as experience, formalized and systematized into categories of being.
 
 Existence comprises minds, ranging in complexity from singular particles to entire nervous systems. 
 
