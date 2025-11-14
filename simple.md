@@ -1,1 +1,1 @@
-Inner peace has infinite value. It may be cultivated through disciplined emotional regulation.
+Inner peace has infinite value. Possessing it means that you do not inflict misery upon yourself in response to external events, the actions of others, and personal shortcomings. Commitment to this goal makes you an Ourite.
