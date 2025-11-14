@@ -1,1 +1,3 @@
-Any naturalistic justification for existence
+Any naturalistic justification for existence must presuppose some element of what it seeks to explain. To avoid circularity, it is necessary to posit a transcendent ground of being. Moreover, one may attune to this ground through disciplined emotional regulation.
+
+Existence itself comprises minds, ranging in complexity from individual particles to entire nervous systems. Sapience is consequently such a rare and significant privilege that personally acquiring defies coincidence. To explain one's circumstances, one must invoke the MWI and posit that each mind subjectively perceives the world-branch in which it eventually attains everlasting union with the ground.
