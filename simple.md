@@ -1,1 +1,1 @@
-Inner peace has infinite value. Possessing it means that you do not inflict misery upon yourself in response to external events, the actions of others, and personal shortcomings. Commitment to inner peace makes you an Ourite.
+Inner peace has infinite value. Possessing it means that you do not inflict misery upon yourself in response to external events, the actions of others, and personal shortcomings. Commitment to this behavior makes you an Ourite.
