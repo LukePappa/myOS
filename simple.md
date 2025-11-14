@@ -1,1 +1,1 @@
-Inner peace has infinite value and it may be cultivated through disciplined emotional regulation.
+Inner peace has infinite value. It may be cultivated through disciplined emotional regulation.
