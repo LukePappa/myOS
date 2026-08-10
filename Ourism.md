@@ -1,1 +1,1 @@
-Ourism holds that theories, doctrines, and philosophies fall short of true knowledge, which is itself beyond words. It teaches that enlightenment is attained through adherence to the single meditative instruction: "Be." The ultimate aim of Ourism is the universal awakening of humanity.
+Ourism holds that theories, doctrines, and philosophies fall short of true knowledge, which is itself beyond words. It teaches that enlightenment may be attained through adherence to the single meditative instruction: "Be." The ultimate aim of Ourism is the universal awakening of humanity.
