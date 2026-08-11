@@ -2,4 +2,4 @@ Ourism holds that theories, doctrines, and philosophies fall short of the truth,
 
 It teaches that realizing the truth is possible through adherence to the single meditative instruction: “Be.”
 
-The aim of Ourism is the universal awakening of humanity.
+The aim of Ourism is the universal enlightenment of humanity.
