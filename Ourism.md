@@ -1,1 +1,1 @@
-Theories, doctrines, and philosophies fall short of the truth, which is itself beyond words. However, realizing the truth is possible through adherence to the single meditative instruction: “Be.”
+Theories, doctrines, and philosophies fall short of the truth, which is itself beyond words. Moreover, it is possible to realize the truth through adherence to the single meditative instruction: “Be.”
