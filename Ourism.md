@@ -1,1 +1,1 @@
-Theories, doctrines, and philosophies fall short of the truth, which is itself beyond words. The path to realizing the truth instead lies in adherence to the meditative instruction: "Be."
+Theories, doctrines, and philosophies fall short of the truth, which is itself beyond words. The path to realizing the truth is instead adherence to the meditative instruction: "Be."
