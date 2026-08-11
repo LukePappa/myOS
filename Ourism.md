@@ -2,4 +2,4 @@ Ourism holds that theories, doctrines, and philosophies fall short of the ultima
 
 It teaches that direct apprehension of this truth is possible through adherence to the single meditative instruction: “Be.”
 
-The ultimate aim of Ourism is the universal awakening of humanity.
+The aim of Ourism is the universal awakening of humanity.
