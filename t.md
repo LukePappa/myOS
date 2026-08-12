@@ -1,1 +1,1 @@
-Theories, doctrines, and philosophies fall short of the truth, which is itself beyond words.
+Your purpose is to surrender yourself utterly and completely to God, the omnipotent, omnipresent, and omnibenevolent creator of the universe.
