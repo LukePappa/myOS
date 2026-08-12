@@ -1,1 +1,1 @@
-Absolute truth, which is itself beyond words, may be found in the present moment.
+The direct apprehension of absolute truth, which is itself beyond words, is possible through the bare act of existence.
