@@ -1,1 +1,1 @@
-The direct apprehension of absolute truth, which is itself beyond words, is attainable through the bare act of existence itself.
+The direct apprehension of absolute truth, which is itself beyond words, is possible through the bare act of existence itself.
