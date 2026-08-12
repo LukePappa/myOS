@@ -1,1 +1,1 @@
-The truth may be found within the present moment.
+The truth may be found in the present moment.
