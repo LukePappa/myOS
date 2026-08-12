@@ -1,1 +1,1 @@
-The truth is beyond words and may be found in the present moment.
+Theories, doctrines, and philosophies fall short of the truth, which may instead be found in the present moment.
