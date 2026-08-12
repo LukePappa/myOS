@@ -1,1 +1,1 @@
-Theories, doctrines, and philosophies fall short of the truth, which may instead be found in the present moment.
+The direct apprehension of absolute truth, which is itself beyond words, is possible through adherence to the single meditative instruction: "Be."
