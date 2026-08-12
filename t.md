@@ -1,1 +1,1 @@
-The truth is beyond words and may instead be found in the present moment. 
+The truth is beyond words and may be found in the present moment. 
