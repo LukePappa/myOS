@@ -1,1 +1,1 @@
-.
+Theories, doctrines, and philosophies fall short of the truth, which is itself beyond words.
