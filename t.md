@@ -1,1 +1,1 @@
-Absolute truth, which is itself beyond words, may be found in the bare act of existence.
+Existence is eternal, indivisible, unchanging, boundless, and complete. Its appearance is expressible in the language of qualia, qualia in that of physics, physics in mathematics, and mathematics in logic. Speaking in those terms, the universe is an act of self-realization, where everything present at its inception perceives a world-branch in which it becomes increasingly conscious of itself. To live in accordance with your purpose, adhere to the single meditative instruction: "Be."
