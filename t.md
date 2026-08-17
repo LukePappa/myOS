@@ -1,1 +1,1 @@
-What exists is God, who is perfect truth, goodness, and beauty. As an act of self-realization, our purpose is to become increasingly conscious of God by 
+What exists is God, who is perfect truth, goodness, and beauty. Our purpose is to become increasingly conscious of Him by attending to the present moment.
