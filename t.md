@@ -1,1 +1,1 @@
-Through the bare act of existence we may become one with God, who is absolute truth, goodness, and beauty.
+What exists is God, who is absolute truth, goodness, and beauty. We may grow in awareness of God through the bare act of existence.
