@@ -1,1 +1,1 @@
-Existence is the direct reality of absolute truth, goodness, and beauty. Its appearance is expressible in the language of qualia, qualia in that of physics, physics in mathematics, and mathematics in logic. Speaking in those terms, the universe is an act of self-realization, where everything present at its inception perceives a world-branch in which it becomes increasingly conscious of itself. To live in accordance with your purpose, adhere to the meditative instruction: "Be."
+God is the direct reality of absolute truth, goodness, and beauty.
