@@ -1,1 +1,1 @@
-God is the direct reality of absolute truth, goodness, and beauty. We may grow in awareness of God through the bare act of existence. 
+What exists is God, who is perfect truth, goodness, and beauty. Our purpose is to attune ourselves to Him through the bare act of existence.
