@@ -1,5 +1,5 @@
-Ourism holds that theories, doctrines, and philosophies fall short of the truth, which is itself beyond words.
+Ourism holds that God is the source and fullness of truth, goodness, and beauty. 
 
-It teaches that absolute truth may instead be found in the bare act of existence.
+It teaches that God may be found in the bare act of existence.
 
-The aim of Ourism is the universal enlightenment of humanity.
+The aim of Ourism is to unite humanity to God.
