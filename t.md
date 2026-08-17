@@ -1,1 +1,1 @@
-God is the direct reality of absolute truth, goodness, and beauty.
+Within the bare act of existence may be found God, who is absolute truth, goodness, and beauty. 
