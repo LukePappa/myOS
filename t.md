@@ -1,1 +1,1 @@
-Absolute truth, goodness, and beauty may be found through the bare act of existence.
+Through the bare act of existence we may become one with God, who is absolute truth, goodness, and beauty.
