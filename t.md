@@ -1,1 +1,1 @@
-What exists is the direct reality of Divine Love. It has become distorted into egocentric desire, creating the false perception of separation and multiplicity. Our purpose is to reattune ourselves to God by learning to love one another selflessly.
+God is the direct reality of absolute truth, goodness, and beauty.
