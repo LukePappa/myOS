@@ -1,1 +1,1 @@
-What exists is God, who is perfect truth, goodness, and beauty. Our purpose is to become increasingly conscious of Him by attending to the present moment.
+What exists is perfect truth, goodness, and beauty. Our purpose is to become increasingly conscious of this reality by attending to the present moment.
