@@ -1,1 +1,1 @@
-Within the bare act of existence may be found God, who is absolute truth, goodness, and beauty. 
+God is absolute truth, goodness, and beauty. Union with God is possible through the bare act of existence.
