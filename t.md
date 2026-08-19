@@ -1,1 +1,1 @@
-Theories, doctrines, and philosophies fall short of the truth, which is itself beyond words. It may instead be found in the bare act of existence.
+Theories, doctrines, and philosophies fall short of the truth, which is itself beyond words. It may instead be found in the bare act of existence, through the meditative instruction: "Be."
