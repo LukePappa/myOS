@@ -1,1 +1,1 @@
-Theories, doctrines, and philosophies fall short of the truth, which is itself beyond words. It may instead be found in the bare act of existence.
+Absolute truth may be found in the bare act of existence.
