@@ -1,5 +1,1 @@
-Ourism holds that God, who is ultimate truth, goodness, and beauty, is the present moment.
-
-It teaches that awareness of God may be gained through adherence to the meditative instruction: "Be."
-
-The aim of Ourism is the universal awakening of humanity.
+Existence is eternal, indivisible, unchanging, boundless, and complete. Its appearance is expressible in the language of qualia, qualia in that of physics, physics in mathematics, and mathematics in logic. Speaking in these terms, the universe is an act of self-realization, where everything present at its inception perceives a world-branch in which it becomes increasingly conscious of itself. To live in accordance with your purpose, adhere to the meditative instruction: "Be."
