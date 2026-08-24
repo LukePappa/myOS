@@ -1,1 +1,1 @@
-God is ultimate truth, goodness, and beauty, and is the present moment. Our existence is an act of self-realization, wherein we come to surrender ourselves utterly and completely to the Divine. This may be accomplished through learning to love one another selflessly.
+God is ultimate truth, goodness, and beauty, and is the present moment. Our existence is an act of self-realization, wherein we come to surrender ourselves utterly and completely to the Divine. Deification may be cultivated through learning to love one another selflessly.
