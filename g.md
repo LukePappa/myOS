@@ -1,0 +1,1 @@
+God is ultimate truth, goodness, and beauty, and is the present moment. Our existence is an act of self-realization, wherein we come to surrender ourselves utterly and completely to the Divine. To live in accordance with our purpose, we must learn to love one another selflessly.
