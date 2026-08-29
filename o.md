@@ -1,1 +1,5 @@
-God is ultimate truth, goodness, and beauty, and is identical to the present moment, which is expressible in the language of qualia, qualia in that of physics, physics in mathematics, and mathematics in logic. Speaking in those terms, the universe comprises minds ranging in complexity from singular particles to entire nervous systems. As an act of self-realization, every mind present at the inception of the universe perceives a world wherein it becomes increasingly aware of itself. To live in accordance with that nature, attend to what is.
+Ourism holds that theories, doctrines, and philosophies fall short of the truth, which is itself beyond words.
+
+It teaches that ultimate truth may instead be found in the present moment.
+
+The aim of Ourism is the universal enlightenment of humanity.
