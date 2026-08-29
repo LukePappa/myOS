@@ -1,5 +1,5 @@
-Ourism holds that theories, doctrines, and philosophies fall short of the truth, which is itself beyond words. 
+Ourism holds that God is ultimate truth, goodness, and beauty, and is identical to the present moment. 
 
-It teaches that ultimate truth may instead be found in the present moment. 
+It teaches that one may grow in awareness of God by attending to what is.
 
-The aim of Ourism is the universal enlightenment of humanity.
+The aim of Ourism is the unification of humanity with God.
