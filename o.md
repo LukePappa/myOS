@@ -1,1 +1,1 @@
-Ourism holds that ultimate truth exists, that it transcends words, and that it can be discovered in the present moment. The aim of Ourism is to enlighten mankind by disseminating this knowledge.
+The aim of Ourism is to enlighten mankind through the knowledge that ultimate truth exists, that it transcends words, and that it can be discovered in the present moment.
