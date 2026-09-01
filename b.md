@@ -1,1 +1,1 @@
-Ourism teaches that perfect meditation may be attained through adherence to the single instruction: "Be." The aim of Ourism is to enlighten humanity.
+Ourism teaches the single meditative instruction: "Be." The aim of Ourism is to spread this teaching to all.
