@@ -1,1 +1,1 @@
-Ourism teaches only the meditative instruction “Be” and aims to share this teaching with all humanity.
+Ourism teaches the meditative instruction “Be” and aims to share this teaching with all humanity.
