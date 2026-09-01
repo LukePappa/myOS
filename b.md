@@ -1,1 +1,1 @@
-The aim of Ourism is to bestow mankind with perfect meditation through the instruction "Be."
+The aim of Ourism is to bestow mankind with perfect meditation through the single instruction "Be."
