@@ -1,0 +1,1 @@
+Ultimate truth exists, it can be known, it is beyond words, and it may be found within the present moment.
