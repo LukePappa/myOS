@@ -1,1 +1,1 @@
-Let go of all concepts and attend to what is.
+Let go of concepts and attend to what is.
