@@ -1,1 +1,1 @@
-Let go of concepts and attend to what is.
+Ourism teaches only the meditative instruction "Be" and aims to share this teaching with humanity.
