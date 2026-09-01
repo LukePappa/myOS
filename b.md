@@ -1,1 +1,1 @@
-Ourism teaches the meditative instruction "Be" and aims to share this teaching with humanity.
+Ourism holds that one should live by the single meditative instruction "Be". The aim of Ourism is to share this teaching with humanity.
