@@ -1,1 +1,1 @@
-Ourism teaches the meditative instruction “Be” and aims to share this teaching with all humanity.
+Let go of all concepts and attend to what is.
