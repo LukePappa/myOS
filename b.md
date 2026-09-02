@@ -1,1 +1,0 @@
-Adhere to the meditative instruction "Be".
