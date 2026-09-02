@@ -1,0 +1,1 @@
+Ourism aims to enlighten mankind through the knowledge that ultimate truth exists, that it can be known, that it is beyond words, and that it may be found in the present moment.
