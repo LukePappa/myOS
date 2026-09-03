@@ -1,1 +1,1 @@
-God is eternal, indivisible, unchanging, boundless, self-existent, and complete love. He may be found in the present moment, which is expressible in the language of qualia, q
+What exists is eternal, indivisible, unchanging, boundless, self-existent, and complete love. It has become distorted into egocentric desire, creating the false perception of separation and multiplicity. Our purpose is to reattune ourselves to God by learning to love one another selflessly.
