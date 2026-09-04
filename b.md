@@ -1,0 +1,1 @@
+Ourism teaches only the meditative instruction "Be", and aims to share this teaching with humanity.
