@@ -1,1 +1,1 @@
-God is ultimate truth, goodness, and beauty, and is identical to the present moment. Our existence is an act of self-realization wherein we come to surrender ourselves utterly and completely to the Divine. To live in accordance with your purpose, attend to what is.
+God is ultimate truth, goodness, and beauty, and is identical to the present moment. Our existence is an act of self-realization, wherein we come to surrender ourselves utterly and completely to the Divine. To live in accordance with our purpose, we must learn to love one another selflessly.
