@@ -4,4 +4,4 @@ His creation comprises individuals who range in complexity from singular particl
 
 Ritual meditation is the primary means by which one surrenders themselves to God. Outwardly, one engaged in this practice is seated with their head bowed and their eyes are closed, while inwardly their heart and mind are still, silent, and sober.
 
-This is the doctrine of Ourism. The aim of Ourism is to spread these teachings to mankind.
+This is the doctrine of Orism. Its purpose is to share its teachings with mankind.
