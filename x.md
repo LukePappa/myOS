@@ -2,4 +2,4 @@ Your purpose is to surrender yourself utterly and completely to God, the transce
 
 His creation comprises individuals who range in complexity from singular particles to entire nervous systems. Every individual present at the inception of the universe perceives a world wherein their purpose is realized, as is His will.
 
-Ritual meditation is the primary means by which one surrenders themselves to God. Outwardly, one engaged in ritual meditation has their head bowed and the eyes are closed, while inwardly there is stillness, silence, and sobriety.
+Ritual meditation is the primary means by which one surrenders themselves to God. Outwardly, one engaged in ritual meditation has their head bowed and the eyes are closed, while inwardly their mind and heart are still, silent, and sober.
