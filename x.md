@@ -1,1 +1,3 @@
-Your purpose is to surrender yourself utterly and completely to God, the transcendent creator and sustainer of the universe. His creation comprises individuals who range in complexity from singular particles to entire nervous systems. Every individual present at the inception of the universe perceives a world wherein their purpose is realized, as is His will. This is the doctrine of Orism. Its purpose is to share its teachings with mankind.
+Your purpose is to surrender yourself utterly and completely to God, the transcendent creator and sustainer of the universe. Everything present at the instant of creation perceives a world wherein their purpose is realized, as is His will. 
+
+This is the doctrine of Orism. The aim of Orism is to share its teachings with mankind.
