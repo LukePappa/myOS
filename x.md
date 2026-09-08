@@ -1,1 +1,1 @@
-Your purpose is to surrender yourself utterly and completely to God, the transcendent creator and sustainer of the universe. His presence is at once ultimate truth, ultimate goodness, and ultimate beauty, and may be found within the present moment.
+Your purpose is to surrender yourself utterly and completely to God, the transcendent creator and sustainer of the universe. His divine presence is at once ultimate truth, ultimate goodness, and ultimate beauty, and may be found within the present moment. 
