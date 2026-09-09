@@ -1,1 +1,0 @@
-Your purpose is to surrender yourself utterly and completely to God, the transcendent creator and sustainer of the universe. Everything present at the inception of this universe perceives a world wherein they realize their purpose, as is His will.
