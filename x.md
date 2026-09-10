@@ -1,0 +1,1 @@
+Your purpose is to surrender yourself utterly and completely to God, the supernatural creator and sustainer of existence. Everything formed at the instant of the Big Bang perceives a world wherein their purpose is realized, as is His will.
