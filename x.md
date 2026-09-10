@@ -1,1 +1,0 @@
-Everything formed at the instant of the Big Bang perceives a world wherein it comes to surrender itself utterly and completely to God, the supernatural creator and sustainer of the universe, as is His will.
