@@ -1,1 +1,1 @@
-Everything formed at the instant of the Big Bang perceives a world-branch wherein it comes to surrender itself utterly and completely to God, the transcendent creator and sustainer of the universe. 
+Everything formed at the instant of the Big Bang perceives a world-branch wherein it comes to surrender itself utterly and completely to God, the transcendent creator and sustainer of the universe, as is His will.
