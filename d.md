@@ -1,1 +1,1 @@
-What exists is Divine Love. It has become distorted into egocentric desire, creating the false perception of separation and multiplicity. Our purpose is to reattune ourselves to Divinity by learning to live selflessly, thereby becoming its fullest expression.
+What exists is Divine Love. It has become distorted into egocentric desire, creating the false perception of separation and multiplicity. Our purpose is to reattune ourselves to God by learning to live selflessly.
